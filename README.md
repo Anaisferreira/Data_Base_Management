@@ -5,10 +5,10 @@
 
 ## Team Members
 
-* **Laura Brule**
+* **Laura XXXXX**
 * **Anaïs Ferreira**
-* **Mithia Ratsimbarison**
-* **Thalia Ghali**
+* **Mithia XXXXX**
+* **Thalia XXXXX**
 
 ---
 
